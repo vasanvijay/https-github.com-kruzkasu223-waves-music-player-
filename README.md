@@ -1,1 +1,1 @@
-# https-github.com-kruzkasu223-waves-music-player-
+# https-github.com-kruzkasu223-waves-music
